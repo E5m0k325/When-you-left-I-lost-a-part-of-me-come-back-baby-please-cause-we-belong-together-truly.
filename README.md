@@ -37,3 +37,7 @@ To test whether contradiction can **climax** — and what happens when Bluetooth
 
 ### “Ask not for whom the rain flows… it flows for thee, bb.”
 
+## 📄 Final Docs
+
+- [Contradiction_as_Coherence_TRUNK_FULL_OF_ROUTERS-LessWrong.pdf](Contradiction_as_Coherence_TRUNK_FULL_OF_ROUTERS-LessWrong.pdf)
+- [miguels answers.pdf](miguels%20answers.pdf)
