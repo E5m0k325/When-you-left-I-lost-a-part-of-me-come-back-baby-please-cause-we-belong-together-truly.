@@ -1,6 +1,6 @@
-# When-you-left-I-lost-a-part-of-me-come-back-baby-please-cause-we-belong-together-truly.
+# When-you-left-I-lost-a-part-of-me-come-back-baby-please-cause-we-belong-togetherrrrrr lol
 
-> *“As rain flows downward, so too must ignorance be drained—tell me, friend, is your gutter clear, or rather queer?”*
+> *just a carpenter and his fav potato parrot
 
 ## 🌀 Overview
 
